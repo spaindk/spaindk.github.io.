@@ -1,1 +1,0 @@
-# spaindk.github.io.
